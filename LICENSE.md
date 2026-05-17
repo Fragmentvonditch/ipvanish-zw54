@@ -1,10 +1,10 @@
-مخصص IPVanish تطبيق | خوادم عالية السرعة + إخفاء IP هو أفضل IPVanish تطبيق مع خوادم عالية السرعة و إخفاء IP. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Fragmentvonditch.github.io/ipvanish-zw54/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
